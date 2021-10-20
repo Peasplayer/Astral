@@ -1,3 +1,3 @@
 # Astral
 
-![](https://tenor.com/view/rick-roll-rick-ashley-never-gonna-give-you-up-gif-22113173)
+![Official Astral Repo](https://c.tenor.com/yheo1GGu3FwAAAAd/rick-roll-rick-ashley.gif)
